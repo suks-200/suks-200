@@ -5,9 +5,9 @@
 
 🤔 I’m looking for help with Competitive Programming
 
-💬 Ask me about anything, Except Maths 😅
+💬 Ask me about anything.
 
-👨‍💻 Life Hack: Learn new tech 🔥 and share what you have learned 🎉
+👨‍💻 Life Hack: Learn new tech and share what you have learned 🎉
 
 ⚡ Fun fact: I waste most of my time playing games
 
